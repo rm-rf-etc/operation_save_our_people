@@ -14,5 +14,4 @@ This will give visibility to the pain and suffering caused by the super wealthy.
 
 Anyone who wants to be removed from this list can contact us and donate their tax
 rewards to a fund which will then be given back to the people who are losing their
-healthcare as a consequent of Donald Trump's OBBBA.
-
+healthcare as a consequence of Donald Trump's OBBBA.
